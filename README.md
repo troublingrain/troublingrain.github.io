@@ -1,7 +1,5 @@
 ## <center> 补档收容营</center>
-<center> 完结★ / 未完结☆  
-*updating2020030*
-  </center>
+<center> 完结★ / 未完结☆ </center>
 
 ### 长长长长长长长
 
@@ -21,3 +19,7 @@
 ★ 在港岛 `叶黄`   <a href="https://write.as/ayunn/zai-gang-dao" target="_blank">[here]</a>
 
 ★ fly me to the... `叶黄`   <a href="https://write.as/ayunn/fly-me-to-the" target="_blank">[下]</a>
+
+### 呃
+
+*updating202003031310*
