@@ -1,7 +1,7 @@
 ## <center> 补档收容营</center>
-<center> 完结 ★ / 未完结 ☆  updating 20200303 </center>
-
-###### #如果
+<center> 完结★ / 未完结☆  
+*updating2020030*
+  </center>
 
 ### 长长长长长长长
 
